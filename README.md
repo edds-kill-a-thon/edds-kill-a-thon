@@ -1,4 +1,6 @@
-`hey hey! you can call me edd simply (i am an edd fictionkin)`
+`(this may be a work in progress)`
+
+HEY MAN! you can call me edd simply (i am an edd fictionkin)
 
 i am a minor. and also turkish *(boowomp!)*
 
