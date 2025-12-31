@@ -2,7 +2,7 @@
 
 i am a minor. and also turkish *(boowomp!)*
 
-any pronouns are okay i dont care. i stand somewhere in the aroace spectrum. my dni is pretty much the basic criteria. nonetheless, i block freely
+any pronouns are okay i dont care (it/its also works). i stand somewhere in the aroace spectrum. my dni is pretty much the basic criteria. nonetheless, i block freely
 
 my destiny was being an **eddsworld** fan apparently + live laugh love liminal spaces/backrooms!
 
