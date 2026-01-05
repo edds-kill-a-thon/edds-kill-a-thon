@@ -18,6 +18,8 @@ i like eddsworld *goulden era* the most. edd and matt come first in my likes. i 
 
 > as for pony town, i sometimes dont mind if people cover me. i may wait until the person leaves; if not, i'll just move somewhere else as long as i'm not off tab or afk. or i may hide people if i get pissed off enough
 
+> i dont mind if people c+h me . i like it
+
 > **i dont approach people usually! but i dont mind if people talk to me. i am probably an ambivert or introvert. but i love socializing with people!**
 
 ———
