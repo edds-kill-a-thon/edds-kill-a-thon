@@ -17,7 +17,7 @@ my destiny was being an **eddsworld** fan apparently + live laugh love liminal s
 i like eddsworld goulden era the most. edd and matt come first in my likes. i also take interest in writing and drawing
 
 
-── .✦
+── .✦ iwc if you're a double please
 
 
 
