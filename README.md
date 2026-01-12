@@ -14,12 +14,10 @@ any pronouns are okay i dont care. it/its also works. i stand somewhere in the a
 
 my destiny was being an **eddsworld** fan apparently
 
-i like eddsworld goulden era the most. edd and matt come first in my likes. i also take interest in writing and drawing
+uuuhg i like eddsworld goulden era the most. edd and matt come first in my likes. i also take interest in writing and drawing
 
 
 ── .✦ iwc if you're a double please
-
-![](https://open.spotify.com/track/6sHb5T8qKYHBcWek8Xnjef?si=h4OVfpnrSgS_H1_N-iuRxQ)
 
 ---
 
