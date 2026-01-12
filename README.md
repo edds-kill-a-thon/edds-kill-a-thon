@@ -29,11 +29,11 @@ i like eddsworld goulden era the most. edd and matt come first in my likes. i al
 
 --> . **PONY TOWN**
 
-> I sometimes don't mind if people cover me. i might just wait until the person leaves; if not, i'll move somewhere else. or i may just hide people if i get pissed enough
+> *I sometimes don't mind if people cover me. i might just wait until the person leaves; if not, i'll move somewhere else. or i may just hide people if i get pissed enough*
 
-> w2i is always welcome if i don't respond to you directly!
+> *w2i is always welcome if i don't respond to you directly!*
 
-> i dont mind if people c+h me . i like it
+> *i dont mind if people c+h me . i like it*
  
 > ***i may not approach people usually due to shyness. but i dont mind if people interact with me! i love socializing with people!***
 
