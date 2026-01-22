@@ -1,6 +1,9 @@
 ![](https://files.catbox.moe/513ga4.png)
-![BLINK! (pfp source)](https://www.tumblr.com/supereddveryday/793236887809687552/day-3-i-dont-think-she-wants-to-be-on-a-leash?source=share)
 
+![BLINK! (pfp source)](https://www.tumblr.com/supereddveryday/793236887809687552/day-3-i-dont-think-she-wants-to-be-on-a-leash?source=share)
+- *@fuzzysmock on tumblr*
+
+---
 
 **HEY MAN!**
 
@@ -23,7 +26,3 @@
 > ask before sending a friend request
 
 > **i may not approach people usually due to shyness. but i dont mind if people interact with me! i love socializing with people!**
-
----
-
-waves
