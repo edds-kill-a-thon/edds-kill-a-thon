@@ -23,3 +23,7 @@
 > ask before sending a friend request
 
 > **i may not approach people usually due to shyness. but i dont mind if people interact with me! i love socializing with people!**
+
+---
+
+waves
