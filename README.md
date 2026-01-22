@@ -21,7 +21,7 @@
 
 # **P**onyTown Info
 
-> interaction , whispers , c+h and boops are welcome
+> interaction , w2i , c+h and boops are welcome
 
 > ask before sending a friend request
 
