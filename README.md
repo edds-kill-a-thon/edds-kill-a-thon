@@ -10,7 +10,8 @@
 <p align="middle">you can call me edd simply! i am an edd fictionkin</p>
 <p align="middle">i am a minor. and also turkish (BOOOWOMP!)</p>
 <p align="middle">any pronouns are okay i dont care. it/its also works. i stand somewhere in the aroace spectrum. my dni is pretty much the basic criteria. nonetheless, i block freely</p>
-<p align="middle">-13 and +18 dni thhough </p>
+<p align="middle">-13 and +18 dni thhough, or at least keep interactions minimal</p>
+
 <p align="middle">my destiny was being an 𝗲𝗱𝗱𝘀𝘄𝗼𝗿𝗹𝗱 fan apparently</p>
 <p align="middle">i like eddsworld goulden era the most. edd and matt come first in my likes. i also take interest in writing and drawing</p>
 
