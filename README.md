@@ -7,7 +7,7 @@ im usually stationed in either the eddsworld area or the bakery :)
 
 my texts are often incomprehensible because i type very fast and end up making lots of spelling mistakes in conversations. will i ever stop? wouldn't you like to know weather boy
 
-my dni is the basic criteria. otherwise i block or hide freely
+my dni is the basic criteria. i block or hide freely
 
 mentally ill and emotionally unstable....... i experience chronic derealisation & depersonalisation ....... i have disorganised attachment style
 
