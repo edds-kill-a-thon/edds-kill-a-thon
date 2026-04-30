@@ -5,4 +5,4 @@
 int, c+h, w2i, boops are okay :)
 ask before sending a friend request, otherwise i may not accept
 
-mentally ill and emotionally unstable, please be patient
+mentally ill and emotionally unstable, please be patient. i experience chronic derealisation & depersonalisation 
