@@ -1,6 +1,6 @@
 ![](https://files.catbox.moe/ocp21b.gif)
 
-<p align="center">$\color{#12A61F}{edd}$ $\color{#12A61F}{fictkin}$ . $\color{#12A61F}{it/its}$ . $\color{#D2C9BB}{angelkin(?)}$ . $\color{#D69448}{aroace}$</p>
+<p align="center">$\color{#12A61F}{edd}$ $\color{#12A61F}{fictkin}$ . $\color{#12A61F}{it/its}$ . $\color{#D2C9BB}{angeldogkin(?)}$ . $\color{#D69448}{aroace}$</p>
 
 
 ![](https://64.media.tumblr.com/f89d6bfd40ae15ef35387eb458fcbc20/cbd9abd31b5e9943-f9/s75x75_c1/f45c6da4ebc03caed0a0799b1fb04ebeefd2e4cc.gifv) ⠀ ⠀  <sub> $\color{green}{\text{“ 𝐀 𝐛𝐨𝐲 𝐢𝐬 𝐚 𝐠𝐮𝐧}}$ </sub>⠀ ⠀   ![](https://64.media.tumblr.com/e411cb395fd6594ccbb0a10f2008416c/558979d3a33566e1-e1/s100x200/e05bf1ea101946767a2723ef72872b46be237bdf.gifv)
@@ -11,7 +11,7 @@
 
 > ### **basic info**
 
-- <sub>okay with int, c+h, w2i, booping, etc. i really like it when people cuddle me in game it sometimes gives me a phantom sensation of warmth<sub> ![](https://64.media.tumblr.com/26ff8f2937bfa105485fc64d3d477d93/08d8aabf849367d9-78/s75x75_c1/4ce1ed3aac3e243c555f4baf6c9bde0af5694b2f.gifv)
+- <sub>okay with int, c+h, w2i, booping, etc. i really like it when people cuddle me in game it sometimes makes me feel warmth<sub> ![](https://64.media.tumblr.com/26ff8f2937bfa105485fc64d3d477d93/08d8aabf849367d9-78/s75x75_c1/4ce1ed3aac3e243c555f4baf6c9bde0af5694b2f.gifv)
 
 - <sub>ask before sending a friend request. i might ignore it otherwise<sub>
 
