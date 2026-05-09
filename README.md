@@ -5,7 +5,7 @@
 
 ![](https://64.media.tumblr.com/f89d6bfd40ae15ef35387eb458fcbc20/cbd9abd31b5e9943-f9/s75x75_c1/f45c6da4ebc03caed0a0799b1fb04ebeefd2e4cc.gifv) ⠀ ⠀  <sub> $\color{green}{\text{“ 𝐀 𝐛𝐨𝐲 𝐢𝐬 𝐚 𝐠𝐮𝐧}}$ </sub>⠀ ⠀   ![](https://64.media.tumblr.com/e411cb395fd6594ccbb0a10f2008416c/558979d3a33566e1-e1/s100x200/e05bf1ea101946767a2723ef72872b46be237bdf.gifv)
 
- ⠀ ⠀   ⠀ [strawpage](https://eddslop.straw.page) . [tumblr](https://tostery.tumblr.com/?source=share) . [pinterest](https://pin.it/6j9oSQiwl)
+ ⠀[strawpage](https://eddslop.straw.page) . [tumblr](https://tostery.tumblr.com/?source=share) . [pinterest](https://pin.it/6j9oSQiwl) . [atabook](https://eddslop.atabook.org/)
 
 ![](https://64.media.tumblr.com/b25ceac7ec8715043a13bc38f3f8118f/42b735165dca3864-75/s500x750/ac3124da77657d192a672691e0bda647310a6de3.gifv)
 
